@@ -1,1 +1,1 @@
-Map of some random places that I like
+Map of some random places I like
